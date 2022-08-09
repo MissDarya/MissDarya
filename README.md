@@ -1,4 +1,4 @@
-### Меня зовут Тихонова Дарья 👋
+### I am Darya Tikhonova (MissDarya✨) 👋
 
 
 <!--
