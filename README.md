@@ -1,4 +1,4 @@
-### I am Darya Tikhonova (MissDarya✨) 👋
+### I am Darya Tikhonova ✨👋
 
 
 <!--
